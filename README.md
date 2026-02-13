@@ -17,7 +17,7 @@ Estou em busca da minha primeira oportunidade como **Estagiário**, onde eu poss
 
 ### 📫 Como me encontrar?
 - **LinkedIn:** [Mikael Lara de Freitas](https://www.linkedin.com/in/mikael-lara-de-freitas-130246241/)
-- **Email:** [mikael.freitas.lara#gmail.com]
+- **Email:** [mikael.freitas.lara@gmail.com]
 
 ---
 "Teoria sem prática é apenas informação. Estou aqui para transformar informação em solução."
